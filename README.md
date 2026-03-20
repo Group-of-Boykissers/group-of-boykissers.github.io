@@ -1,2 +1,2 @@
-moved to [here](https://git.gay/Group-of-Boykissers/pages)
+moved to [here](https://git.gay/GoB/pages)
 
